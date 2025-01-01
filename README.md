@@ -1,1 +1,1 @@
-OK, so this is my next attempt at editing my profile :)
+<b>OK, so this is my next attempt at editing my profile :)</b>
